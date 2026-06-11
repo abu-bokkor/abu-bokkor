@@ -1,6 +1,6 @@
 # Olá, eu sou o Abu Bokkor! 👋
 
-Região de Londrina, PR | 📧 abu@bokkor.com | 📱 +55 43 99124-3125  
+Região de Londrina, PR | 📧 abu-bokkor@outlook.com | 📱 +55 43 99124-3125  
 🔗 [Meu LinkedIn](https://linkedin.com/in/bokkor)
 
 ---
